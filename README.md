@@ -1,0 +1,2 @@
+# botum
+ödevim için
